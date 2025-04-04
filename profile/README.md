@@ -77,9 +77,6 @@ Open the app, log in to your account, and dive into the action!
 
 ---
 
-## Popular Games APK Downloads
-- **[R.E.P.O. Mobile APK 1.0.0](https://github.com/repo-mobile-release)**
-
 ## Conclusion
 
 **Counter Strike 2 APK 3.5.1** offers an unparalleled tactical shooting experience on Android. With its realistic graphics, diverse game modes, and global multiplayer, it’s the ultimate FPS game for mobile players. Download now and prove your skills in the world of Counter-Strike!
